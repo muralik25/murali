@@ -1,4 +1,2 @@
 # murali
-hjcdjhdkdk
-jskkdowdpw;
-nskdsls;ls
+reposrty training
